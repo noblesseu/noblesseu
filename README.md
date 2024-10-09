@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @noblesseu
 - 👀 I’m interested in Bioinformatics
 - 🌱 I’m currently learning Data Science
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me noblesseushindi2026@u.northwestern.edu
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I hear colors and see sounds. Twos are red and Sevens are Yellow. I'm a synesthetic
