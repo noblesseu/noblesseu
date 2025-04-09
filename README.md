@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @noblesseu
-- 👀 I’m interested in Bioinformatics
+- 👀 I’m interested in the Biomedical world
 - 🌱 I’m currently learning Data Science
 - 📫 How to reach me noblesseushindi2026@u.northwestern.edu
 - 😄 Pronouns: he/him
