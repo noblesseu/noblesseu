@@ -13,7 +13,7 @@ I experience the world through synesthesia, where numbers have colors (twos are 
 
 ## 🤝 Let's Connect
 
-📧 Email: noblesseushindi2026@u.northwestern.edu
+📧 Email: ushindinoblesse100@gmail.com
 💬 Pronouns: he/him
 🎯 Open to: Collaborations in biomedical data science, research opportunities, and innovative projects
 
