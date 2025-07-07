@@ -1,4 +1,4 @@
-Hey there! 👋 I'm @noblesseu
+Hey there! 👋 I'm Noblesse Ushindi
 🧬 About Me
 I'm passionate about bridging the gap between biomedical research and data-driven insights. Currently diving deep into the world of data science to unlock patterns that could transform healthcare and medical research.
 🔬 What I'm Up To
